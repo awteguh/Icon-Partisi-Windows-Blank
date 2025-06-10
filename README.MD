@@ -1,0 +1,2 @@
+# Icon Partisi Windows Blank  
+
